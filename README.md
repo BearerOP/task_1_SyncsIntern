@@ -6,3 +6,9 @@ Quick Link : https://bearerop.github.io/task_1_SyncsIntern/
 
 
 <img width="1439" alt="Screenshot 2023-07-03 at 1 37 49 AM" src="https://github.com/BearerOP/task_1_SyncsIntern/assets/96431371/e78ba986-14e3-4a9a-9fbf-fbf24419cff6">
+
+
+
+
+https://github.com/BearerOP/task_1_SyncsIntern/assets/96431371/7f01a995-9b1c-4f45-b2c4-1ebda7d80ab2
+
